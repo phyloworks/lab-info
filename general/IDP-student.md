@@ -1,4 +1,4 @@
-# Individualized Development Plan
+# Student Individualized Development Plan
 
 ## Name - Date
 
